@@ -19,7 +19,7 @@
      📫I don't have any references, I haven't cooperated yet 😕
     
 
->      💡Yarının, bugünden daha iyi olmasını istiyorsan, şimdiden          farklı bir şeyler yapmalısın.. @w3xN 
+>      💡Yarının, bugünden daha iyi olmasını istiyorsan, şimdiden farklı bir şeyler yapmalısın.. @w3xN 
 
  - ##  📩 _You can reach my Instagram address [here](instagram.com/furkandgnck)_
 
